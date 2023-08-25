@@ -1,5 +1,4 @@
 <div id="header" align="center"> 
-   <img src="https://media1.giphy.com/media/gR2QsBTCO5DhwIm3cr/giphy.gif" width="180" height="180"/> 
+   <img src="https://thumbs.gfycat.com/RemorsefulMerryAfricanjacana-size_restricted.gif"/> 
  </div>
  
-### Hi there 👋
